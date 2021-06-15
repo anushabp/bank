@@ -1,2 +1,2 @@
 Anusha B P <br>
-Task 1 of The Sparks Foundation Internship
+Task 1 - The Sparks Foundation Internship
